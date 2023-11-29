@@ -8,7 +8,7 @@ I'm creating my own game launcher software 🎮💻
 
 * 🌍  I'm based in Buriram, Thailand
 * ✉️  You can contact me at [badtvchanel@gmail.com](mailto:badtvchanel@gmail.com)
-* 🚀  I'm currently working on [Fujino N's](http://fujinons.web.app/web/new/)
+* 🚀  I'm currently working on [Fujino N's](https://discord.com/invite/3fa6gc9)
 
 ### Skills
 
